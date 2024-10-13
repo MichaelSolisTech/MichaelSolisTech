@@ -12,6 +12,8 @@
 
 - ⚡ Fun fact **I'm humble**
 
+- 💪 Check out my YouTube channel: [Lucha de brazos]([https://www.youtube.com/your-channel-link](https://www.youtube.com/@LuchaDeBrazosPanama/shorts)) 📺
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/michael-solis2000/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="michael-solis2000/" height="30" width="40" /></a>
