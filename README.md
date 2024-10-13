@@ -12,7 +12,7 @@
 
 - ⚡ Fun fact **I'm humble**
 
-- 💪 Check out my YouTube channel: [Lucha de brazos]([https://www.youtube.com/your-channel-link](https://www.youtube.com/@LuchaDeBrazosPanama/shorts)) 📺
+- 📺 Check out my YouTube channel: <a href="[https://www.youtube.com/your-channel-link](https://www.youtube.com/@LuchaDeBrazosPanama/shorts)"><u>Lucha de brazos Panama</u></a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
