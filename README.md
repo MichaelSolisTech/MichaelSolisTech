@@ -11,8 +11,8 @@
 - 📫 How to reach me **michael.solis@utp.ac.pa**
 
 - ⚡ Fun fact **I'm humble**
+<!-- - 📺 Check out my YouTube channel: <a href="https://www.youtube.com/@LuchaDeBrazosPanama/shorts" style="text-decoration: underline;">Lucha de brazos Panama</a>-->
 
-- 📺 Check out my YouTube channel: <a href="https://www.youtube.com/@LuchaDeBrazosPanama/shorts" style="text-decoration: underline;">Lucha de brazos Panama</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
