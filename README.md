@@ -11,7 +11,7 @@
 - 📫 How to reach me **michael.solis@utp.ac.pa**
 
 - ⚡ Fun fact **I hate chess**
-- 📺 Check out my YouTube channel: <a href="https://www.youtube.com/@LuchaDeBrazosPanama/shorts" style="text-decoration: underline;">Lucha de brazos Panama
+
 <!--   </a>-->
 
 <h3 align="left">Connect with me:</h3>
