@@ -12,6 +12,8 @@
 
 - ⚡ Fun fact **I hate chess**
 
+- 🎥 Checkout my [YouTube channel](https://www.youtube.com/@LuchaDeBrazosPanama/shorts)
+
 <!--   </a>-->
 
 <h3 align="left">Connect with me:</h3>
