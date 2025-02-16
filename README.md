@@ -12,7 +12,7 @@
 
 - ⚡ Fun fact **I hate chess**
 
-- 🎥 Checkout my [YouTube channel](https://www.youtube.com/@LuchaDeBrazosPanama/shorts)
+- 🎥 Checkout my Youtube Channel [Lucha de Brazos Panama](https://www.youtube.com/@LuchaDeBrazosPanama/shorts)
 
 <!--   </a>-->
 
